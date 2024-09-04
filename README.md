@@ -1,5 +1,5 @@
 <p align="center">
-<b> WOLF/LOGAN
+<b> WOLF
  <img src= "https://gifcity.carrd.co/assets/images/gallery12/099389b6.gif?v=dc8076d6">
   22
  <img src= "https://gifcity.carrd.co/assets/images/gallery12/099389b6.gif?v=dc8076d6">
