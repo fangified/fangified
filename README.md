@@ -9,7 +9,7 @@
 
 <p align="center">
 this is a ponytown specific page. <br> my main page can be found
-<a href="https://w0lf.straw.page">here.</a> my interests and stuff are listed there too. <br> please don't copy my ponies.
+<a href="https://w0lf.straw.page">here.</a> my interests and stuff are listed there too. <br> please don't copy my ponies. i love my ocs.
 </p>
 
 <p align="center">
