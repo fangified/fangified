@@ -9,7 +9,7 @@
 
 <p align="center">
 this is a ponytown specific page. <br> my main page can be found
-<a href="https://w0lf.straw.page">here.</a> my interests and stuff are listed there too. <br> please don't copy my ponies. i love my ocs. <br> i'm not really on here to talk umm a lot of you are fucking strange...
+<a href="https://w0lf.straw.page">here.</a> my interests and stuff are listed there too. <br> please don't copy my ponies. i love my ocs. <br> if you like mh or emh and are a good roleplayer please message me somewhere I NEED A LONGTERM ROLEPLAY. most likely horror. i am against using ai bots.
 
 </p>
 
