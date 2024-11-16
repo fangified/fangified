@@ -4,4 +4,4 @@ GOREHOUND PSYCHOCREEP <br/> IDK HOW TO TALK 2 PPL <br/> ..MORE ON STRAWPAGE <br/
 <br/>
 WHAT ARE YOU DOING ABOUT THAT HOLE IN YOUR HEAD? <br/>
 DISCORD: wolfsdayoff <br/>
- <img src="https://blinkies.cafe/b/blinkiesCafe-Sb.gif" width="180">
+ <img src="https://i.imgur.com/trK19Wf.gif" width="180">
