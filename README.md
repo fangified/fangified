@@ -1,6 +1,6 @@
  <img src="https://gifcity.carrd.co/assets/images/gallery01/daa2513e.gif?v=47652796" width="50"> **EVAN** / WOLF <br/> 22  IT/HE
  <br/>
-GOREHOUND PSYCHOCREEP <br/> I DON'T HATE YOU IM JUST BAD AT TONE OVER TEXT <br/> ..MORE ON STRAWPAGE <br/>
+GOREHOUND PSYCHOCREEP <br/> IDK HOW TO TALK 2 PPL <br/> I DON'T HATE YOU IM JUST BAD AT TONE OVER TEXT <br/> ..MORE ON STRAWPAGE <br/>
 <br/>
 WHAT ARE YOU DOING ABOUT THAT HOLE IN YOUR HEAD? <br/>
 DISCORD: _halloweenhangover <br/>
