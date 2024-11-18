@@ -3,5 +3,5 @@
 GOREHOUND PSYCHOCREEP <br/> I DON'T HATE YOU IM JUST BAD AT TONE OVER TEXT <br/> ..MORE ON STRAWPAGE <br/>
 <br/>
 WHAT ARE YOU DOING ABOUT THAT HOLE IN YOUR HEAD? <br/>
-DISCORD: wolfsdayoff <br/>
+DISCORD: _halloweenhangover <br/>
  <img src="https://i.imgur.com/trK19Wf.gif" width="180">
