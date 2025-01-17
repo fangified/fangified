@@ -1,9 +1,9 @@
 **EVAN** / WOLF ☣ 22 ☣  IT/HE ☣ EVIL GOREHOUND BOYTHING <br/>
 <img src="https://gifcity.carrd.co/assets/images/gallery39/59e6c9a7.gif?v=47652796">
 <br/>
-<img src="https://i.imgur.com/ovaff5r.gif"> USUALLY TABBED OUT
+<img src="https://i.imgur.com/ovaff5r.gif"> USUALLY TABBED OUT. AND I WILL DISAPPEAR RANDOMLY.
 <br/>
-<img src="https://i.imgur.com/kqNZIYF.gif"> I'M BAD AT TALKING TO PEOPLE. IM NERVOUS SORRY.
+<img src="https://i.imgur.com/kqNZIYF.gif"> I'M BAD AT TALKING TO PEOPLE. IM NERVOUS SORRY. 
 <br/> 
 <img src="https://i.imgur.com/BjtQDjG.gif"> SRY IF I UNADD YOU I LIKE MY FRIENDSLIST TO PEOPLE I RECOGNIZE 
 <br/>
