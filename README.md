@@ -7,7 +7,7 @@
 <br/> 
 <img src="https://i.imgur.com/BjtQDjG.gif"> SRY IF I UNADD YOU I LIKE MY FRIENDSLIST TO PEOPLE I RECOGNIZE 
 <br/>
-<img src="https://gifcity.carrd.co/assets/images/gallery31/1ad9e5e9.gif?v=47652796"> I LIKE TO PLAY AND HAVE FUN. THE PIXEL HORSE GAME IS NEVER THAT SERIOUS.
+<img src="https://gifcity.carrd.co/assets/images/gallery31/1ad9e5e9.gif?v=47652796"> THE PIXEL HORSE GAME IS NEVER THAT SERIOUS. IF I DONT LIKE YOU I JUST WONT TALK TO YOU..
 <br/>
 <img src="https://gifcity.carrd.co/assets/images/gallery01/541621c7.gif?v=47652796"> MORE ON STRAWPAGE :D
 <br/>
