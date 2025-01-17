@@ -5,9 +5,9 @@
 <br/>
 <img src="https://i.imgur.com/kqNZIYF.gif"> I'M BAD AT TALKING TO PEOPLE. IM NERVOUS SORRY.
 <br/> 
-<img src="https://i.imgur.com/BjtQDjG.gif"> I DONT WALK ON EGGSHELLS AROUND FUCKASS PEOPLE SO IF YOURE SENSITIVE ITS NOT MY PROBLEM
+<img src="https://i.imgur.com/BjtQDjG.gif"> SRY IF I UNADD YOU I LIKE MY FRIENDSLIST TO PEOPLE I RECOGNIZE 
 <br/>
-<img src="https://gifcity.carrd.co/assets/images/gallery31/1ad9e5e9.gif?v=47652796"> [MY DNI](https://rentry.co/wolfs-dni) IF YOU CARE THAT MUCH (IDGAF IF U BLOCK)
+<img src="https://gifcity.carrd.co/assets/images/gallery31/1ad9e5e9.gif?v=47652796"> I LIKE TO PLAY AND HAVE FUN. THE PIXEL HORSE GAME IS NEVER THAT SERIOUS.
 <br/>
 <img src="https://gifcity.carrd.co/assets/images/gallery01/541621c7.gif?v=47652796"> MORE ON STRAWPAGE :D
 <br/>
