@@ -6,7 +6,7 @@
 <img src="https://i.imgur.com/kqNZIYF.gif"> I'M BAD AT TALKING TO PEOPLE. IM NERVOUS SORRY.
 <br/> 
 <img src="https://pixels.crd.co/assets/images/gallery05/50e1276b.gif?v=99d3974e"> I NEED FRIENDS. PLEASE TALK TO ME IF YOU THINK WE WILL GET ALONG. I PROMISE I'M NICE. <br/> 
-*THAT BEING SAID, [HERE'S](https://rentry.co/wolfs-dni) WHAT I DON'T WANT TO BE FRIENDS WITH..!*
+..*THAT BEING SAID, [HERE'S](https://rentry.co/wolfs-dni) WHAT I DON'T WANT TO BE FRIENDS WITH..!*
 <br/>
 <img src="https://i.imgur.com/BjtQDjG.gif"> SRY IF I UNADD YOU I LIKE MY FRIENDSLIST TO PEOPLE I RECOGNIZE 
 <br/>
