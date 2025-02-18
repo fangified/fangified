@@ -3,7 +3,7 @@
 <br/>
 <img src="https://i.imgur.com/ovaff5r.gif"> USUALLY TABBED OUT. AND I WILL DISAPPEAR RANDOMLY.
 <br/>
-<img src="https://i.imgur.com/kqNZIYF.gif"> I'M BAD AT TALKING TO PEOPLE. IM NERVOUS SORRY. 
+<img src="https://i.imgur.com/kqNZIYF.gif"> I'M BAD AT TALKING TO PEOPLE. IM NERVOUS SORRY. I NEED FRIENDS. PLEASE TALK TO ME IF YOU THINK WE'LL GET ALONG. I PROMISE I'M NICE.
 <br/> 
 <img src="https://i.imgur.com/BjtQDjG.gif"> SRY IF I UNADD YOU I LIKE MY FRIENDSLIST TO PEOPLE I RECOGNIZE 
 <br/>
