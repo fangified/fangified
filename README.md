@@ -3,8 +3,10 @@
 <br/>
 <img src="https://i.imgur.com/ovaff5r.gif"> USUALLY TABBED OUT. AND I WILL DISAPPEAR RANDOMLY.
 <br/>
-<img src="https://i.imgur.com/kqNZIYF.gif"> I'M BAD AT TALKING TO PEOPLE. IM NERVOUS SORRY. I NEED FRIENDS. PLEASE TALK TO ME IF YOU THINK WE'LL GET ALONG. I PROMISE I'M NICE.
+<img src="https://i.imgur.com/kqNZIYF.gif"> I'M BAD AT TALKING TO PEOPLE. IM NERVOUS SORRY.
 <br/> 
+<img src="https://pixels.crd.co/assets/images/gallery05/50e1276b.gif?v=99d3974e"> I NEED FRIENDS. PLEASE TALK TO ME IF YOU THINK WE WILL GET ALONG. I PROMISE I'M NICE. <br/> 
+THAT BEING SAID, [HERE'S](https://rentry.co/wolfs-dni) WHAT I DON'T WANT TO BE FRIENDS WITH..!
 <img src="https://i.imgur.com/BjtQDjG.gif"> SRY IF I UNADD YOU I LIKE MY FRIENDSLIST TO PEOPLE I RECOGNIZE 
 <br/>
 <img src="https://gifcity.carrd.co/assets/images/gallery31/1ad9e5e9.gif?v=47652796"> THE PIXEL HORSE GAME IS NEVER THAT SERIOUS. IF I DONT LIKE YOU I JUST WONT TALK TO YOU..
