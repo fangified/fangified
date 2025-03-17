@@ -3,16 +3,9 @@
 <br/>
 <img src="https://i.imgur.com/ovaff5r.gif"> USUALLY TABBED OUT. AND I WILL DISAPPEAR RANDOMLY.
 <br/>
-<img src="https://i.imgur.com/kqNZIYF.gif"> I'M BAD AT TALKING TO PEOPLE. IM NERVOUS SORRY.
+<img src="https://i.imgur.com/kqNZIYF.gif"> you're all weird as fuck, not in the good way. i don't like any of you.
 <br/> 
-<img src="https://pixels.crd.co/assets/images/gallery05/50e1276b.gif?v=99d3974e"> I NEED FRIENDS. PLEASE TALK TO ME IF YOU THINK WE WILL GET ALONG. I PROMISE I'M NICE. <br/> 
-..*THAT BEING SAID, [HERE'S](https://rentry.co/wolfs-dni) WHAT I DON'T WANT TO BE FRIENDS WITH..!*
-<br/>
-<img src="https://i.imgur.com/BjtQDjG.gif"> SRY IF I UNADD YOU I LIKE MY FRIENDSLIST TO PEOPLE I RECOGNIZE 
-<br/>
-<img src="https://gifcity.carrd.co/assets/images/gallery31/1ad9e5e9.gif?v=47652796"> THE PIXEL HORSE GAME IS NEVER THAT SERIOUS. IF I DONT LIKE YOU I JUST WONT TALK TO YOU..
-<br/>
-<img src="https://gifcity.carrd.co/assets/images/gallery01/541621c7.gif?v=47652796"> MORE ON STRAWPAGE :D
+
 <br/>
 <br/>
 WHAT ARE YOU DOING ABOUT THAT HOLE IN YOUR HEAD? <br/>
