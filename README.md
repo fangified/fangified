@@ -11,5 +11,4 @@ if you come to me trying to argue instead of using the block button (free to use
 <br/>
 <br/>
 WHAT ARE YOU DOING ABOUT THAT HOLE IN YOUR HEAD? <br/>
- <img src="https://i.imgur.com/trK19Wf.gif" width="180"> <br/> <br/> <br/>
  
