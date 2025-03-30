@@ -9,6 +9,5 @@ if you come to me trying to argue instead of using the block button (free to use
 <br/>
 <img src="https://gifcity.carrd.co/assets/images/gallery39/59e6c9a7.gif?v=47652796">
 <br/>
-<br/>
 WHAT ARE YOU DOING ABOUT THAT HOLE IN YOUR HEAD? <br/>
  
