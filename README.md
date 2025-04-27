@@ -3,7 +3,7 @@
 <br/>
 <img src="https://i.imgur.com/ovaff5r.gif"> USUALLY TABBED OUT. AND I WILL DISAPPEAR RANDOMLY. 
 <br/>
-<img src="https://gifcity.carrd.co/assets/images/gallery01/541621c7.gif?v=e3c0bc0f"> PT SYSTEMS I DONT WANT TO BE FRIENDS WITH YOU hmu if you're normal i'm nice
+<img src="https://gifcity.carrd.co/assets/images/gallery01/541621c7.gif?v=e3c0bc0f"> PT SYSTEMS I DONT WANT TO BE FRIENDS WITH YOU hmu if you're normal i'm nice <br> the block / hide function is right there if you have an issue with me stop being immature and parasocial
 <br/> 
 <img src="https://gifcity.carrd.co/assets/images/gallery311/4262d959.gif?v=e3c0bc0f"> if i remove you don't take it personally/don't accept random frqs.
 <br/>
