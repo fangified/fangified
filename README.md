@@ -9,4 +9,4 @@
 <br/>
 <img src="https://i.imgur.com/CDm0uuR.png" width=300>
 <br/>
- i dont talk a lot. copy my shit and imma find you in real life
+ i dont talk a lot but if i sit with you it means i think youre chill! copy my shit and imma find you in real life
