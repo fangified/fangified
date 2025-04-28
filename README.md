@@ -3,7 +3,7 @@
 <br/>
 <img src="https://i.imgur.com/ovaff5r.gif"> USUALLY TABBED OUT. AND I WILL DISAPPEAR RANDOMLY. 
 <br/>
-<img src="https://gifcity.carrd.co/assets/images/gallery01/541621c7.gif?v=e3c0bc0f"> the block / hide function is right there, you are not holier than thou for 'forgetting' to use it. get a job
+<img src="https://gifcity.carrd.co/assets/images/gallery01/541621c7.gif?v=e3c0bc0f"> if you take the pixel horse game seriously gtf away from me
 <br/> 
 <img src="https://gifcity.carrd.co/assets/images/gallery311/4262d959.gif?v=e3c0bc0f"> if i remove you don't take it personally/don't accept random frqs.
 <br/>
