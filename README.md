@@ -3,7 +3,7 @@
 <br/>
 <img src="https://i.imgur.com/ovaff5r.gif"> USUALLY TABBED OUT. AND I WILL DISAPPEAR RANDOMLY. 
 <br/>
-<img src="https://gifcity.carrd.co/assets/images/gallery01/541621c7.gif?v=e3c0bc0f"> i avoid a lot of specific genre of people on ponytown Ha ha
+<img src="https://gifcity.carrd.co/assets/images/gallery01/541621c7.gif?v=e3c0bc0f"> i avoid a LOT of specific genre of people on ponytown Ha ha
 <br/> 
 <img src="https://gifcity.carrd.co/assets/images/gallery311/4262d959.gif?v=e3c0bc0f"> if i remove you don't take it personally/don't accept random frqs.
 <br/>
