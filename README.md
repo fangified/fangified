@@ -7,6 +7,6 @@
 <br/> 
 <img src="https://gifcity.carrd.co/assets/images/gallery311/4262d959.gif?v=e3c0bc0f"> if i remove you don't take it personally/don't accept random frqs.
 <br/>
-<img src="https://i.imgur.com/CDm0uuR.png" width=300>
+<img src="https://i.imgur.com/CDm0uuR.png" width=300> <br/> <img src="https://i.imgur.com/F5E5SII.png" width=100>
 <br/>
  i dont talk a lot but if i sit with you it means i think youre chill! copy my shit and imma find you in real life
