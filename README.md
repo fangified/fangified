@@ -5,10 +5,10 @@
 <br/>
 <img src="https://gifcity.carrd.co/assets/images/gallery01/541621c7.gif?v=e3c0bc0f"> i avoid a LOT of specific genre of people on ponytown Ha ha come find out
 <br/> 
-<img src="https://gifcity.carrd.co/assets/images/gallery311/4262d959.gif?v=e3c0bc0f"> if i remove you don't take it personally/don't accept random frqs.
+<img src="https://gifcity.carrd.co/assets/images/gallery311/4262d959.gif?v=e3c0bc0f"> mostly dicking around, i dont talk a lot and struggle to make friends 
 <br/>
 <img src="https://gifcity.carrd.co/assets/images/gallery311/3797eab7.gif?v=e3c0bc0f"> i will match your energy so if you don't like me then guess what
 <br/>
 <img src="https://i.imgur.com/CDm0uuR.png" width=300> <br/> <img src="https://i.imgur.com/F5E5SII.png" width=100>
 <br/>
- i dont talk a lot but if i sit with you it means i think youre chill! copy my shit and imma find you in real life
+copy my shit and imma find you in real life
