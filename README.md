@@ -3,7 +3,7 @@
 <br/>
 <img src="https://i.imgur.com/ovaff5r.gif"> USUALLY TABBED OUT. AND I WILL DISAPPEAR RANDOMLY. 
 <br/>
-<img src="https://gifcity.carrd.co/assets/images/gallery01/541621c7.gif?v=e3c0bc0f"> i avoid a LOT of specific genre of people on ponytown Ha ha come find out
+<img src="https://gifcity.carrd.co/assets/images/gallery01/541621c7.gif?v=e3c0bc0f"> i avoid a LOT of specific genre of people on ponytown, if i dont like you YOU'D KNOW
 <br/> 
 <img src="https://gifcity.carrd.co/assets/images/gallery311/4262d959.gif?v=e3c0bc0f"> mostly dicking around, i dont talk a lot and struggle to make friends
 <br/>
