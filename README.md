@@ -9,6 +9,8 @@
 <br/>
 <img src="https://gifcity.carrd.co/assets/images/gallery311/3797eab7.gif?v=e3c0bc0f"> i like being approached first, just please be straightforward with your intentions
 <br/>
+<img src="https://gifcity.carrd.co/assets/images/gallery01/9e656c08.gif?v=e3c0bc0f"> i have memory issues and A Lot Of Other Issues, srry if i say the same thing to you twice
+<br/>
 <img src="https://i.imgur.com/CDm0uuR.png" width=300> <br/> <img src="https://i.imgur.com/F5E5SII.png" width=100>
 <br/>
 copy my shit and imma find you in real life
