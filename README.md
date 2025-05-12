@@ -5,7 +5,7 @@
 <br/>
 <img src="https://gifcity.carrd.co/assets/images/gallery01/541621c7.gif?v=e3c0bc0f"> i avoid a LOT of specific genre of people on ponytown, i mostly just ignore or block silently.
 <br/> 
-<img src="https://gifcity.carrd.co/assets/images/gallery311/4262d959.gif?v=e3c0bc0f"> mostly dicking around, i dont talk a lot and struggle to make friends. i never feel awkward and will say a lot of ironic things to keep a convo going.
+<img src="https://gifcity.carrd.co/assets/images/gallery311/4262d959.gif?v=e3c0bc0f"> mostly dicking around, i dont talk a lot and struggle to make friends.
 <br/>
 <img src="https://gifcity.carrd.co/assets/images/gallery311/3797eab7.gif?v=e3c0bc0f"> i like being approached first, just please be straightforward with your intentions.
 <br/>
