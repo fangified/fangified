@@ -1,4 +1,4 @@
-**EVAN** / WOLF ☣ 22 ☣ 
+**EVAN** ☣ 22 ☣ 
 [STRAWPAGE](https://w0lf.straw.page) FOR MORE 
 <br/>
 <img src="https://gifcity.carrd.co/assets/images/gallery39/59e6c9a7.gif?v=47652796">
