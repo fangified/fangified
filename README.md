@@ -15,4 +15,4 @@
 <br/>
 <img src="https://i.imgur.com/CDm0uuR.png" width=300> <img src="https://i.imgur.com/F5E5SII.png" width=100>
 <br/>
-copy my shit and imma find you in real life ......im not woke enough 4 this
+copy my shit and imma find you in real life
