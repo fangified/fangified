@@ -7,7 +7,7 @@
 <br/>
 <img src="https://gifcity.carrd.co/assets/images/gallery01/541621c7.gif?v=e3c0bc0f"> i avoid a LOT of specific genre of people on ponytown, i mostly just ignore or block silently.
 <br/> 
-<img src="https://gifcity.carrd.co/assets/images/gallery311/4262d959.gif?v=e3c0bc0f"> mostly dicking around, i dont talk a lot and struggle to make friends. i usually sit with people quietly but if i have you added please feel free to whisper to me i like talking to familiar people.
+<img src="https://gifcity.carrd.co/assets/images/gallery311/4262d959.gif?v=e3c0bc0f"> playing pt for fun. i dont have friends so feel free to whisper 2 me if i have you added, i enjoy talking to familiar people
 <br/>
 <img src="https://gifcity.carrd.co/assets/images/gallery311/3797eab7.gif?v=e3c0bc0f"> i like being approached first, just please be straightforward with your intentions.
 <br/>
@@ -16,4 +16,3 @@
 <img src="https://i.imgur.com/CDm0uuR.png" width=300> <img src="https://i.imgur.com/sYmD5eX.png" width=100>
 <br/>
 copy my shit and imma find you in real life
-<br/> i dont want to be friends with you if youre publicly a system, sorry.
