@@ -16,3 +16,4 @@
 <img src="https://i.imgur.com/CDm0uuR.png" width=300> <img src="https://i.imgur.com/sYmD5eX.png" width=100>
 <br/>
 copy my shit and imma find you in real life
+<br/> i dont want to be friends with you if youre publicly a system, sorry.
