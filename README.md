@@ -16,4 +16,5 @@
 <img src="https://gifcity.carrd.co/assets/images/gallery01/9e656c08.gif?v=e3c0bc0f"> i have memory issues and A Lot Of Other Issues, srry if i say the same thing to you twice.
 <br/>
 <br/>
+it's a socializing game, with real people behind a screen, learn to use the block button and grow up! <br/>
 copy my shit and imma find you in real life
