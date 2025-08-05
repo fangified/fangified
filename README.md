@@ -7,5 +7,4 @@
 <br/>
 i have memory issues and A Lot Of Other Issues, srry if i say the same thing to you twice. <br/> also sorry if im not overly chatty, weary of ppl here ^_^
 <br/>
-it's a socializing game, with real people behind a screen, learn to use the block button and grow up! <br/>
 copy my shit and imma find you in real life
