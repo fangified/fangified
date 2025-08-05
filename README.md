@@ -1,6 +1,6 @@
-**EVAN** ☣ 22 ☣ 
-[PONYTOWN STRAWPAGE !intended for desktop!](https://bugdog.straw.page)
-☣ 
+**EVAN** ☣ 22 
+[PONYTOWN STRAWPAGE intended for desktop](https://bugdog.straw.page)
+<br/>
 [PERSONAL STRAWPAGE](https://w0lf.straw.page) FOR ART ACCOUNTS + MORE  <br/> 
 <img src="https://gifcity.carrd.co/assets/images/gallery39/59e6c9a7.gif?v=47652796">
 </a>
