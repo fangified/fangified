@@ -1,5 +1,5 @@
 ☣ **EVAN** . . .  22 <br/>
-☣ [PONYTOWN STRAWPAGE (intended for desktop)](https://bugdog.straw.page)
+☣ [PONYTOWN STRAWPAGE (intended for desktop)](https://bugdog.straw.page) wip still hehe
 <br/>
 ☣ [PERSONAL STRAWPAGE](https://w0lf.straw.page) FOR ART ACCOUNTS + MORE  <br/> 
 <img src="https://gifcity.carrd.co/assets/images/gallery39/59e6c9a7.gif?v=47652796">
