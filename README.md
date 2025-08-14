@@ -9,4 +9,4 @@ i have memory issues and A Lot Of Other Issues, srry if i say the same thing to 
 <br/> i'm  sorry but im not reading your 4 page long dni so if i fall into that just block 
 <br/> or hide me. be nice to each other or learn how to curate your space like a 
 <br/> fucking adult ^_^ if you're mean to me im going to assume youre baiting or doing 
-a bit. <br/> copy my shit and imma find you in real life 
+a bit. copy my shit and imma find you in real life 
